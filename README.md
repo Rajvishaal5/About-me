@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rajv21210.ad@rmkec.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharinghttps://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharing](https://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharinghttps://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharing)
+- 📄 Resume: [https://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharinghttps://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharing](https://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharinghttps://drive.google.com/file/d/1a0Oot2KGATry9qzEx0foCiGejVSO8e9-/view?usp=sharing)
 
 - ⚡ Fun fact **The term "bug" in computer programming originated in 1947 when Grace Hopper, a pioneer in computer science, found an actual moth inside a computer, causing it to malfunction. She coined the term "debugging" to describe the process of fixing errors in code.**
 
